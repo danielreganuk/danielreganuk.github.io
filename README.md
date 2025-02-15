@@ -1,1 +1,0 @@
-# danielreganuk.github.io
